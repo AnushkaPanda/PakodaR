@@ -1,0 +1,1 @@
+Ingredients - onion, ginger, garlic, chillies, chick pea flour / besan, water, oil.
